@@ -4,3 +4,4 @@
 - pero milagrosamente el piloto sobrevivio.
 -Quedó varado en una isla desconocida.
 - sin memoria
+- al final por tratar de huir de un vikingo hambriento  se lo comió una tortuga y le dio indigestion a la pobre tortuga.
