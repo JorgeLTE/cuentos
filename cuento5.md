@@ -4,3 +4,4 @@
 - La puerta tenia dos grandes barras de un metal obscuro
 - Las ventanas estaban sucias por años de descuido
 - Al abrir la puerta un olor punzante a viejo y podrido escapaba de la casa
+- En el cuarto más alejado se pude ver en la sobremesa, un poco de opio
