@@ -1,5 +1,2 @@
 ## Cuento 2
-- Había una vez un señor que vivía solo en el bosque
-- estaba tan solitario, así que decidió ir al OXXO por un Vikingo.
-- FIN
-- hasta que el vikingo le causo una seria indigestión
+-irving es gei y es mi cliente en el smash atte: los dinamita originales >:v
