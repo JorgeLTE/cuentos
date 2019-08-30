@@ -3,3 +3,4 @@
 - estornudo y mancho el parabrisas y al no ver nada se estrelló.
 - pero milagrosamente el piloto sobrevivio.
 -Quedó varado en una isla desconocida.
+- sin memoria
