@@ -6,3 +6,6 @@
 - entonces decidió tomar un pepto bismol y siguió comiendo su
 - vikingo bien recio.
 - FIN x2
+- En la noche decidió ir por unos tacos, pero resultaron ser de
+- suaperro y le volvió a dar una indigestión.
+- FIN x3
