@@ -9,3 +9,6 @@
 - En la noche decidió ir por unos tacos, pero resultaron ser de
 - suaperro y le volvió a dar una indigestión.
 - FIN x3
+- Quiso tomar pepto bismol otra vez
+- Pero se atragantó con el pepto y se murió
+- FIN Ahora si jaja 
